@@ -16,6 +16,6 @@ Feel free to [reach out to me](mailto:wongtongjie@gmai.com) for help, collabs or
 
 ---
 
-> The only way of discovering the limits of the possible is to venture a little way past them into the impossible.
+> 噫 好 我中了
 
-— Arthur C. Clarke
+—吴敬梓
