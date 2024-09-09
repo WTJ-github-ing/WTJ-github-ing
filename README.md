@@ -10,7 +10,7 @@ Weapons of choice include but are not limited to:
 
 I love road cycling, movies, and my family.
 
-Feel free to [reach out to me](wongtongjie@gmai.com) for help, collabs or side hustles  
+Feel free to [reach out to me](mailto:wongtongjie@gmai.com) for help, collabs or side hustles  
 
 ✨🚀✨👨🏻‍🚀✨🖖✨
 
