@@ -16,6 +16,6 @@ Feel free to [reach out to me](mailto:wongtongjie@gmai.com) for help, collabs or
 
 ---
 
-> 噫 好 我中了
+> 噫 好 我中了!
 
 —吴敬梓
