@@ -19,3 +19,8 @@ Feel free to [reach out to me](mailto:wongtongjie@gmai.com) for help, collabs or
 > 噫 好 我中了!
 
 —吴敬梓
+
+
+
+<img src="https://media.tenor.com/images/df8c44a1d20ab367fdcb21880985fd33/tenor.gif" align="right"  width="30%" alt=""/>
+
