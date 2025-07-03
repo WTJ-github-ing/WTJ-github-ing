@@ -1,4 +1,4 @@
-### 你好！👋 欢迎来到我的技术世界
+### 你好！👋 欢迎
  **初级算法工程师**，专注于深度学习模型的快速实现与部署优化。
 
 <img src="https://media.tenor.com/images/df8c44a1d20ab367fdcb21880985fd33/tenor.gif" align="right" width="30%" alt=""/>
